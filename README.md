@@ -1,1 +1,0 @@
-# jejakkaryakusdn002bs
